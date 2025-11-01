@@ -1,6 +1,7 @@
 
 
-<img width="1500" height="500" alt="17596030610932270292542787506605" src="https://github.com/user-attachments/assets/9afb714f-89aa-400e-9e6f-6b917425ea3b" />
+<img width="1500" height="500" alt="17620175082128980232677609744152" src="https://github.com/user-attachments/assets/23fc4408-d827-4f46-8ea8-9c1ecc92187c" />
+
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=F7F6AD&width=435&lines=Cmere+!+Hehe!;Hug+time+!+;Free+hugs+!)](https://git.io/typing-svg)
@@ -30,6 +31,7 @@
 
 
 
- <img width="1500" height="400" alt="17596031113636328802860253939326" src="https://github.com/user-attachments/assets/e4ed2f40-3392-4869-8f18-131f322686f6" />
+ <img width="1500" height="500" alt="1762017527822447419292048288677" src="https://github.com/user-attachments/assets/5493d218-600e-4593-8d5e-965b4463d1e1" />
+
  
 
